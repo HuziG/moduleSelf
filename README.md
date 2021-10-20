@@ -25,7 +25,7 @@ https://www.jinmai.store/#/pages/home/home?id=6134a5f48c00db000149977c&type=all
 2. 前端的事
 3. 做独立开发者的事
 
-## 直取信息！
+## 这样联系我！
 微信：dingjiadingjiazhang
 
 QQ：1067408814
